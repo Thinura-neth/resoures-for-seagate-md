@@ -1,0 +1,1 @@
+# resoures-for-seagate-md
